@@ -1,2 +1,2 @@
 # GIS
-Maaf masih proses  perbaikan!
+Mohon maaf masih proses  perbaikan, mohon dimaklumi!
